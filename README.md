@@ -4,4 +4,5 @@ burakcakir@hotmail.com.tr
 or
 burakcakir06@gmail.com
 
-Buraya Bakarlar
+# İlham amatörler içindir biz oturur ve çalışırız.
+ Stephen King
